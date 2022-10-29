@@ -11,10 +11,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-### Website
-***
-
-### (https://web3lario.web.app)
+### [Website] (https://web3lario.web.app)
 
 ### Social Media Links
 ___
